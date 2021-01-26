@@ -1,4 +1,4 @@
-### Hi everyone 😀
+### Hi, i'm Nova
 
 - My social networks :\
 -[Twitter](https://twitter.com/dieuexe)\
